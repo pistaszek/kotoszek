@@ -3,3 +3,13 @@
 #### czesto sie psulo ale mam nadzieje ze sie nie popsuje, a jak popsuje to jest plik *error.html* ktory to naprawia pozdro
 #### stworzone w wiekszosci przeze mnie, *Pistaszka* lol
 #### pozdro
+#
+#
+#
+#
+#
+#
+#
+#
+#
+###### nie odpowiadam za szkody kochani, pobierata to na __swoją własną odpowiedzialność__ ^^
